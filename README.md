@@ -1,7 +1,7 @@
 # Jenna Barbian
 
 # 💫 About Me:
-🔭 I’m currently working on expanding my knowledge<br>👯 I’m looking to collaborate on a project<br>🌱 I’m currently learning Statistics<br>💬 Ask me about my unique background experience<br>📫 How to reach me: info@jennabarbian.com<br>👨‍💻 A sample of projects will be available at jennabarbian.com<br>⚡ Fun fact Hummingbirds Can Fly Up to 20 Hours a Day 
+🔭 I’m currently working on expanding my knowledge<br>👯 I’m looking to collaborate on a project<br>🌱 I’m currently learning Statistics<br>💬 Ask me about my unique background experience<br>📫 How to reach me: info@jennabarbian.com<br>👨‍💻 A sample of projects will be available at jennabarbian.com<br>⚡ Fun Fact: Hummingbirds Can Fly Up to 20 Hours a Day 
 
 
 ## 🌐 Socials:
